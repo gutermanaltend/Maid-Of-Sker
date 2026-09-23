@@ -239,4 +239,4 @@ Maid of Sker is provided as a complete free version, allowing players to enjoy a
 Download Maid of Sker now and immerse yourself in a world where every sound could spell your doom!
 
 ---
-**Last updated:** 2026-09-22 23:18:55 UTC
+**Last updated:** 2026-09-23 01:55:47 UTC
